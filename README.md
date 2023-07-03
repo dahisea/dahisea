@@ -1,1 +1,1 @@
-#Thia user had played Genshin.
+# This user had played Genshin.
