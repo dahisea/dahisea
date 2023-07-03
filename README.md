@@ -1,1 +1,1 @@
-GOOD
+#Thia user had played Genshin.
