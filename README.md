@@ -26,7 +26,7 @@
 
 ## 🎵 Current Hyperfixations
 ▶️ **MyGO!!!!!** - Tomori lives in my head rent-free  
-▶️ **Ave Mujica** - Hype for the anime after that banger PV  
+▶️ **Ave Mujica** - Hype for the anime after that banger Music  
 
 ## 🌟 Why Follow?
 - Want to see **AI dev without coding**?  
