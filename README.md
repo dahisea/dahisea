@@ -33,5 +33,4 @@
 - Fellow **gacha addict/rhythm game masochist**?  
 - Just here for **anime shitposts**? Valid.  
 
-📫 **Find Me**:  
 ⭐ **More at [dahi.icu](https://dahi.icu)**
